@@ -8,7 +8,7 @@ NAME 塗品妍
   <li>聽歌（嘻哈/韓團）</li>
   <li>跳舞(還在學習）</<li>
   <li>看恐怖片（有點怕但又愛看型）</li>
-  <li>很喜歡ITZY/KIOF/ADP/Kendrick Lamar/Travis Scoff</li>
+  <li>很喜歡ITZY/KIOF/ADP/Kendrick Lamar/Travis Scott</li>
   </ol>
 <li>個性</li>
   <ol>
